@@ -1,2 +1,2 @@
 # animated-rotary-phone
-Being the the there will ever be 
+Being the best the there will ever be 
